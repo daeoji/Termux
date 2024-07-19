@@ -1,2 +1,2 @@
 # spam-wa
-Update lagi gaiss:v
+Pesan Dae, Gunakan ilmu untuk kebutuhan yang tepat :D
